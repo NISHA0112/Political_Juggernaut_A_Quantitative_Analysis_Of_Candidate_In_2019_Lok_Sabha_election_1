@@ -1,0 +1,1 @@
+# Political_Juggernaut_A_Quantitative_Analysis_Of_Candidate_In_2019_Lok_Sabha_election_1
